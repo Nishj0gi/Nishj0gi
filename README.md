@@ -1,5 +1,5 @@
 # 💫 About Me:
-am a motivated and responsible undergraduate student with a strong interest in learning new technologies and improving my skills. I consider myself disciplined, adaptable, and a quick learner. I work well both independently and in a team and always try to give my best in any task assigned to me. I am eager to gain practical experience and grow both personally and professionally.
+I am a motivated and responsible undergraduate student with a strong interest in learning new technologies and improving my skills. I consider myself disciplined, adaptable, and a quick learner. I work well both independently and in a team and always try to give my best in any task assigned to me. I am eager to gain practical experience and grow both personally and professionally.
 
 
 ## 🌐 Socials:
